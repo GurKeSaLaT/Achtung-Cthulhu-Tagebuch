@@ -12,15 +12,15 @@ Missionsziel Aufklärung:
 
 
 -------- TODOS --------
->01 - Schreibtisch von Botho in Sphinx Buchclub
+>01 - Erledigt - Schreibtisch von Botho in Sphinx Buchclub
 
->02 - Buchhandlung Pretzsche der auch Okkulte Dinge unter der Theke handelt
+>02 - Erledigt - Buchhandlung Pretzsche der auch Okkulte Dinge unter der Theke handelt
 
 >03 - Wer ist LM (Liesel Maurer)?
 
 >04 - Statue im Buchclub die ein Kompass ist.
 
->05 - Den Gegenstand aus der Lagerhalle klauen
+>05 - Erledigt - Den Gegenstand aus der Lagerhalle klauen
 -----------------------------
 
 Botho Ehrlichmann ist in Wien gestorben, bekannter von Max Weber
@@ -125,7 +125,35 @@ Max und Gisela auf dem Riesenrad:
     Wir beauftragen 2 Nutten die Wachen abzulenken.
     Wir überwältigen die beiden Wachen und lassen die Nutten ziehen.
     Wir stürmen in den Hauptraum ein Großer Kampf bricht aus.
-    Maso stirbt, wir töten den Rest.
+    Maso wird schwer Verwundet, wir töten den Rest.
     Bruckmüller wendet das Auto.
 
-    Artefakte der Soldaten liegen noch auf dem Boden
+    Artefakte der Soldaten werden mit auf den LKW geladen.
+    Dokumente und Uniformen werden in das Auto von Frank geladen
+
+Wir bringen den LKW an meine Stadtvilla
+Laden die Kiste ab.
+Bruckmüller leiht sich einen LKW und kommt zur Stadtvilla
+
+Tobias Fischer geht zum Buchclub unt trifft dort auf Gotthold Fuchs
+Die Beiden unterhalten sich:
+    Interessiert sich für Archäologie
+    Dieser Plant anscheinend eine Expedition nach Ägypen
+    Die Expedition startet in Kairo und geht weiter nach Abukir und dann weiter Richtung Syrien (Aleppo)
+    Er selbst will aber lieber nach Abukir(Ort neben Alexandria)
+    Er ist nicht der Leiter
+    Die Expedition ist auf der Suche nach Fossilien in Fayumm
+
+
+Die Anderen durchsuchen die Exponate
+    Finden eine verstaubte Figur aus Metall von einer Frau die nicht viel anhat in einer hinteren Ecke (Schild: unbekannte herkunft, Firgur aus unbekannten Gestein vermutlich Meteoritenmetall - Gefunden von Ernst Schäfer 1929 in Tibet)
+
+Frank besorgt eine Bronzestatue um diese gegen die Figur auszutauschen
+Gottlob Fuchs wird von einem SS Soldaten gerufen, es gibt Neuigkeiten von einer "Verschwundenen Sache"
+Frank verfolgt Fuchs
+Tobias Fischer geht zur Vitrine - kennt Ernst Fischer, er war seit mind. 2 Jahren nicht mehr im Buchclub
+Lässt ein Buch beim Pförtner zurück - Katografierung von nordischen Ritualorten
+
+Oli Knackt den Schreibtisch von Ernst Fischer und Findet dort den Schlüssel zur Virtine
+Die Figuren wurden ausgetauscht
+Frank verfolgt Fucht mit dem Taxi bis zum neuen Rathhaus - Fuchs geht rein, Frank wartet davor.
