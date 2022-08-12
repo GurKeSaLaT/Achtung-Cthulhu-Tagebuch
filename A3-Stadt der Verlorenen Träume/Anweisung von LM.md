@@ -1,0 +1,32 @@
+# Anweisung von LM
+Unserem Wiener Archäologen-Freund ist nicht zu trauen. 
+
+Offene Fragen dürfen nicht ungeklärt bleiben.
+
+Ich vertraue darauf, dass Sie diese Sache zu unserer Zufriedenheit aus der Welt schaffen werden.
+
+Nehmen Sie mit, was auch immer Sie finden können.
+
+LM
+
+Weitere Dinge:
+
+* Nachtwölfe Patch
+
+Mehrere Seiten Papier mit:
+
+* verschiedenen Statusberichte über eine "Spezialeinheit" mit dem Namen "Nachtwölfe". Insgesamt ~10 Agenten in der Stadt. Gotthold Fuchs ist der Anführer und untersteht einem Kontakt mit dem Namen Liesel Maurer. Er wird benannt als einer der 7 Obristen der Forschungsgemeinschaft Deutsches Ahnenerbe, dem Das Ahnenerbe e.V.
+
+* Brief über die Entdeckung des schwarzen Steins von Saïs
+
+* Brief über die Entdeckung eines Buches mit dem Namen: Das Buch der Maschine
+
+Aufzeichnungen über die Aktivitäten von Botho Ehrlichmann:
+
+* Ehrlichmann muss auf etwas gestoßen sein, was von großem Nutzen für die Nazi-Kriegsmaschinerie sein könnte
+
+* Operation "Fall Weiß" startet am 1. September 1939
+
+* Es handelt sich um den Teil eines Gerätes, dessen Fundorte er möglicherweise aufgedeckt hat.
+
+* Die Nazis scheinen Ehrlichmann zu glauben und keine Kosten und Mühen zu scheuen, um das was Ehrlichmann entdeckt hat in seinen Besitz zu bringen

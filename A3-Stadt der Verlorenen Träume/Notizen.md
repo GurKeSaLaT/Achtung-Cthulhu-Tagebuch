@@ -1,0 +1,290 @@
+# Briefing
+
+Missionsziel Aufklärung:
+
+- Informationsbeschaffung über Fräulein Gisela Waltrun und ihre geplanten Aktivitäten - Es könnte sich bei Fräulein Gisela Waltrun, um die Agentin MAUS handeln
+
+- Laut aktueller Informationslage soll sich Agentin MAUS um die Beschaffung eins okkulten Gegenstandes kümmern. Verhindern Sie dies und übergeben Sie den möglichen Gegenstand bis spätestens 31. August an Konvoi A12-3908 Kontakt: Herrmann Eich
+
+- Unterstützen sie Fräulein Gisela Waltrun bei ihren Aktivitäten vordergründig
+
+- Falls es sich bei Fräulein Gisela Waltrun um die Agentin MAUS handelt versuchen sie Fräulein Gisela Waltrun zur Doppelagentin umzudrehen
+
+# To Dos
+
+- [x] [01 - Schreibtisch von Botho in Sphinx Buchclub](#01)
+
+- [x] [02 - Buchhandlung Pretzsche der auch Okkulte Dinge unter der Theke handelt](#02)
+
+- [ ] [03 - Wer ist LM (Liesel Maurer)?](#03)
+
+- [ ] [04 - Statue im Buchclub die ein Kompass ist.](#04)
+
+- [x] [05 - Den Gegenstand aus der Lagerhalle klauen](#05)
+
+# Notizen
+
+Botho Ehrlichmann ist in Wien gestorben, bekannter von Max Weber
+Gisela - Deutsche Agentin schreibt an Max und will sich mit Max treffen
+
+Max trifft sich mit Gisela am Würstelbrater
+Brief von Gisela bekommen mit Geheimnachricht - Zeichen von Sphinx Buchclub
+
+
+_28. August_ 
+
+## Tobias Fischer (Olli) und Bruckmüller (Andy) gehen zum Sphinx Buchclub
+
+Wilhelm Siedler (Patron des Buchclubs) ist anwesend als die beiden den Buchclub betreten
+
+Gehen zum Schreibtisch von Botho Erhlichmann - nichts interessantes darauf
+
+Gehen zu Siedler uns sprechen Ihn auf Ehrlichmann an
+  
+Vor einem Tag war bereits ein Herr Gottlob Fuchs (vermutlich Deutscher) und wollte den Nachlass abhohlen  
+Gottlob Fuchs hat sich ebenfalls alle Bücher von Botho ausgeliehen  
+Siedler macht die Schulblade für Bruckmüller auf, sie finden:  
+- ziemliches durcheinander mit verschiedensten Übersetzungsversuchen von Hyroglyphen  
+- Ein Telegramm  
+- ein ausgeliehenes Buch der zivilisation von Hyperborea  
+Bruckmüller Überredet Siedler den Schreibtisch von Fuchs zu öffnen und nimmt alles raus und zeigt sie Bruckmüller  
+Darin ist enthalten - [siehe Anweisung von LM](/Anweisung%20von%20LM.md)
+
+
+
+## Valentin Holzer (Ich) und Livia (Franzi) gehen zur Buchhandlung Pretzsche
+
+Buchhandlung sieht eher trostlos und Schäbig aus  
+Überall sind Bücher aufgetürmt und die Stapet Teilweise zusammengefallen  
+Modriger Gruch, Tabakrauch, und Kräuter sich zu riechen
+
+Ernst Pretzsche ist riesig groß, geht aber immer gebückt  
+Wir kaufen 2 Bücher  
+Sonst weis er nicht viel  
+
+---
+
+Livia sitz im Hotel und verfolgt Gisela zum Friedhof - sie verbringt 2 Stunden in der Kirche  
+Als Gisela aus der Kirche kommt entschwindet sie Livia
+
+---
+
+Tobias Fischer geht zu Pretzsche und Fragt nach dem "Buch der Maschine" - gibt eine Anzahlung in 5 Tagen bekommt er Rückmeldung 
+
+---
+
+Wilhelm Tanaris - Deutscher Geheimagent - Führungsoffizier der Gisela
+
+---
+
+Bekannter Penner kommt ins Café und übergibt Maso einen Zettel.
+Auf dem Zettel sind 2 Namen von Agenten der Sektion M in Rom.
+
+---
+
+Pretsche will das wir die Seite 39 aus dem Wiener Manuskript klauen.  
+Wir geben Ihm je eine Locke von uns  
+Geht zu einem Stapel Bücher und kommt mit einem Buch zurück (Wiener Basikiskenhaus) auf der ersten Seite Klebt ein Zettel den gibt er uns "mit Gruß vom seeligen Doktor"  
+
+----
+
+Bruckmüller unterhält sich mit Siedler und erfährt über Pretsche der macht mit alle deals die Ihm zum vorteil sind. Jeder kennt Pretzsche, schätzungsweise zwischen 30 und 120 Jahren alt.
+
+Der Stock aus Eisen ist von aliens und ist ein Kzikolottel, eine Alienrasse die nur mit eisen in schacht gehalten werden kann.
+
+Livia Klaut die Seite 39 des Wiener Manuskripts und Hinterlässt einen "Windschaden"
+
+---
+
+Max lauert vor dem Hotel Imperial und sieht Gisela aussteigen.
+Max verabredet sich mit Gisela um 2100h unterm Riesenrad am Wurstelbrater.
+
+---
+
+Botho war ein guter Freund von Pretzsche  
+Die letzten Tage, er war kurz vor seinem Tode bei Pretzsche und hat Ihn gebeten falls ihm was zustößt den Zettel demjenigen zu geben der von Gisela geschickt wird.
+
+Er sagt Botho hat was bei Boltzmann in ohbut gegeben
+
+Wir fahen mit dem Taxi zum Friedhof
+
+Bestechen die Friedhofsgärtner damit wir alleine am Grab sein dürfen.  
+Finden dort einene losen Stein, darunter ein dick in Öltuch eingeschlagenes Notizbuch.  
+Verabschieden uns vom Friedhof und machen uns auf den Weg zum Café.  
+
+---
+
+Franzi findet im Tagebuch von Botho das es im Buchclub eine Figur ein Kompass sein soll. [Neues ToDo](#04)
+
+---
+
+Machen uns auf dem zum Prather, treffen sich am Riesenrad, wollen eine Runde fahren.   
+zwei Tax en hinter Gisela steigt ein Mann aus der Fotos von verschiedenen Dingen macht, aber eigentlich nur Bilder bon Gisela und Max macht.  
+Es ist noch ein 2. Beamter im einsatz der die Max und Gisela in kurzen abstand verfolgt.   
+Bruckmüller versucht jugendliche zu bestechen den Foto zu klauen.  
+Der Jugendliche rennt los, schubst den Fotografen und reist ihm die Kamera aus der Hand und rennt damit einfach weiter.  
+
+---
+
+Bruckmüller entwickelt die Fotos von der Kamera
+Auf den Bildern sind viele Bilder von Max und 4 weiteren Personen (3 weiblich 1 männlich) immer einzeltreffen, einmal auf dem Hauptfriedhof.
+
+---
+
+Max und Gisela auf dem Riesenrad:
+- Gisela weis das Max für die Briten arbeitet
+- Gisela wurde auf Max angesetzt
+- Gisela weis nichts über den "Fall weiß"
+- Gisela hat nach Max gesucht um ihm die Sache mit Botho zu übergeben
+- Die deutschen wissen vermutlich nicht wer Max ist.
+- Sie ist auf Mission einen Gegenstand zu beschaffen, dieser verlässt morgen früh um 0500 die Stadt.
+- Max erzählt Gisela von Bothos Forschung
+- Morgen um 0500 am Nordbahnhof Lagerhalle Sektion C Halle 3 ehemalige Wartungshallt, von dort fahren 2 Opel Blitz los nach München.
+    An Bord befindet sich auch Gottlob Fuchs mit Leibgarde aus 2 SS Soldaten, sowie "Spezialeinsatzkräfte" mit Okkulten fähigkeiten. [Neues ToDo](#05)
+- Max soll sich für morgen ein Zimmer im President nehmen und dann kommt Gisela vorbei. 
+
+## Nordbahnhof Lagerhalle 03
+  
+Wir beauftragen 2 Nutten die Wachen abzulenken.  
+Wir überwältigen die beiden Wachen und lassen die Nutten ziehen.  
+Wir stürmen in den Hauptraum ein Großer Kampf bricht aus.  
+Maso wird schwer Verwundet, wir töten den Rest.  
+Bruckmüller wendet das Auto.  
+Artefakte der Soldaten werden mit auf den LKW geladen.  
+Dokumente und Uniformen werden in das Auto von Frank geladen
+
+---
+
+Wir bringen den LKW an meine Stadtvilla  
+Laden die Kiste ab.  
+Bruckmüller leiht sich einen LKW und kommt zur Stadtvilla  
+
+## Im Buchclub
+
+Tobias Fischer geht zum Buchclub unt trifft dort auf Gotthold Fuchs
+Die Beiden unterhalten sich:
+- Interessiert sich für Archäologie
+- Dieser Plant anscheinend eine Expedition nach Ägypen
+- Die Expedition startet in Kairo und geht weiter nach Abukir und dann weiter Richtung Syrien (Aleppo)
+- Er selbst will aber lieber nach Abukir(Ort neben Alexandria)
+- Er ist nicht der Leiter
+- Die Expedition ist auf der Suche nach Fossilien in Fayumm
+
+Die Anderen durchsuchen die Exponate:  
+>Finden eine verstaubte Figur aus Metall von einer Frau die nicht viel anhat in einer hinteren Ecke (Schild: unbekannte herkunft, Firgur aus unbekannten Gestein vermutlich Meteoritenmetall - Gefunden von Ernst Schäfer 1929 in Tibet)
+
+Frank besorgt eine Bronzestatue um diese gegen die Figur auszutauschen  
+Gottlob Fuchs wird von einem SS Soldaten gerufen, es gibt Neuigkeiten von einer "Verschwundenen Sache"  
+Frank verfolgt Fuchs  
+Tobias Fischer geht zur Vitrine - kennt Ernst Fischer, er war seit mind. 2 Jahren nicht mehr im Buchclub  
+Lässt ein Buch beim Pförtner zurück - Katografierung von nordischen Ritualorten  
+
+Oli Knackt den Schreibtisch von Ernst Fischer und Findet dort den Schlüssel zur Virtine  
+Die Figuren wurden ausgetauscht  
+Frank verfolgt Fucht mit dem Taxi bis zum neuen Rathhaus - Fuchs geht rein, Frank wartet davor.  
+
+---
+
+Wir sind auf der Suche nach deutschen Nummernschildern
+
+Ich werden von Polizisten gefangen genommen es lag eine verwechlung vor.  
+Einer der Polizisten hies Klaus Maler
+
+Max klaut deutsche Nummernschilder
+Schrauben Nummernschilder an den LKW fahren los.
+Kommen ohne Probleme aus Wien raus
+
+Oli fährt im Kreis  
+Livia und ich fahren zur Botschaft zurück
+
+Treffen mit dem Botschafter ist unergiebig, der Konvoi meldet sich in 12-24h wieder gibt uns den Tipp beim wirt in Kreusberg abzusteigen.  
+Treffen mit Konvoi morgen um 2400  
+Livia fährt zurück zu Fischer  
+Ich kaufe einen LKW und packe eine:  
+- Kuhfuß
+- Seilzug
+- Bretter
+- Klamotten
+
+---
+
+Rest geht zu Pretzsche
+- Max gibt noch eine Locke ab
+- Bekommen die Seite des Wiener Manuskrips zurück
+- Das Buch der Maschine ist von den Nazis aus Tiebet mitgebracht worden
+
+---
+
+Frank list die Seite des Wiener Manuskipts:
+- 1903 standen die Sterne für ein Ereignis richtig
+
+---
+
+Max geht ins Hotel Imperial und trifft sich mit Gisela
+- Gisela weis nicht ob sie deutschland verlassen KANN
+- Kennt Liesel Maurer - weis nicht für wen LM arbeitet
+- Gisela traut sich nicht den deutschen den Rücken zu kehren
+- Gibt Max eine Adresse in Berlin worüber sie erreichbar ist
+
+---
+
+Livia trifft sich mit Tobias  
+Ich komme später auch dazu  
+Laden den Stock im Eisen auf den neuen LKW  
+Wir Verstecken den NAZI-LKW  
+
+Fahren zum Treffpunkt bei Dorfwirt un Groisbach  
+Wirtschaft ist schon abgeschlossen udn alles ist dunkel  
+Tobias und ich schlafen in LKW   
+Livia fährt wieder Heim  
+
+---
+
+Gotthold Fuchs kommt früh morgens ins Hotelzimmer zu Gisela und Max und sagt ihr: Dr. Emil Küster kommt heute an. Fuchs muss mit den Nachtwölfen nach Rom, direkter Befehl von Liesel Maurer. Gisela bekommt das Kommando über Wien und reist bald nach Berlin ab.
+
+Küster ist ein unangenehmer Zeitgenosse, er ist der Berliner Hofarchäologe.
+
+---
+
+Livia schaut sich die Seite des Wiener Manuskripts an:
+Pretzsche hat sich wohl auf der Seite des Wiener Manuskripts mit einem Skalpell zu schaffen gemacht und Sternenkonstelationen mit den Grundrissen von Bauwerken verglichen.
+
+---
+
+Max, Maso, Bruckmüller und Livia treffen sich im Kaffee Gugelhupf.
+
+Tobias Fischer und ich klopfen am morgen beim Wirt und der lässt uns rein und gibt uns Frühstück, den Britschenwagen stellen wir in die Schäune.
+
+Wir warten auf Pichler (Kontakt aus der Botschaft). 
+
+---
+
+Italien 1925 hat sich die totalitäre Partei um Musolini an die Macht gebracht.   
+Vernichtung der kommunistischen ansichten   
+Musolini regiert impulsiv  
+Arbeiterverbände von der Regierung kontrolliert   
+Industrie von Großgrundbesitzern kontrolliert  
+
+Stahlpackt mit deutschalönd - gemeinsame Ideale und Aufrüstung - auch bekannt als Blutpackt mit Hittler
+
+
+Bruckmüller Maso und Max fahren mit dem Auto nach Rom.  
+Bereiten das auto vor und verstecken Waffen darin.  
+
+Am nächsen morgen in Wirtshaus steht ein LKW gegenüber 2 Leute Schlafen da drin.
+
+Tobias frühstückt und nimmt den Schlüssel zur Schäune mit und schaut nach unserem Wagen - alles in Ordnung
+
+halbe Stunde später stehen die beiden aus dem LKW auf und kommen ins Wirtshaus  
+Unterhalten sich mit dem Wirt und haben eine Lieferung für Herrn Holzer
+Tobias geht mit zum BierLKW und unterhalten sich.  
+Fahrer kommt mit dem Knie ans Radio und eine Stimmer sagt: "Seit 5:15 wird zurückgeschossen" - Deutschland hat angefangen Polen zu überfallen.  
+
+Tobias weckt mich und wir treffen uns mit den BierLKW und laden um.  
+Wir haben jetzt 500 Liter Bier geladen.  
+Parken den LKW am nächsten Bahnhof und fahren mit dem Zug nach Wien  
+
+Livia erstellt kopien von den Linien auf dem Wiener Manuskript  
+und bringt dann das Orginal wieder in die Uni
+
+Packen einen Koffer mit Waffen etc. und laden die dinge aus dem LWK noch ein begeben uns zum Zug und fahren los.
