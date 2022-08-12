@@ -1,0 +1,21 @@
+# Ausrüstung 
+
+Emese: 
+- Fußkettchen mit Namen Jaro
+- Lageplan von Burg
+
+Von Gestapo Schneider:
+- Walther PPK inkl. Magazin
+- Gestapo Ausweis von Friedhelm Schneider
+- Gelbeutel mit Kleingeld
+- Kladde mit Informationen zu verschiedenen Personen:
+    - Personenbeschreibungen zu Vitez Kvet, Matjas der Wirt, Jaroslav & Eliska, Marek, Bohuslav
+    - Unzählige Hinweise über Bürger von Karlstein & Trebain
+    - Aktuelle Zählung auf dem Marktplatz -> Wie viele Bürger betreten Welchen Laden
+
+Allgemein:
+- 2 SS Uniformjacken ( SS Sturmmann und Rottenführer) eine an Harrison eine an mich
+- Persnalausweis - Führerschein und Dienstmarke
+
+- Ehemals versiegelter Umschlag aus Berlin - mit aufschrift Geheim
+Notzibuch von Kammerstein

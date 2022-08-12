@@ -1,0 +1,296 @@
+# To Dos
+
+[x] David Sova - Zu Burg befragen  
+[x] Susanna Sova - Einfahrtmöglichkeit zu Burg abklären - potentiell gefährlich  
+[x] Wirt vom Ochsen (Matjes) - nach Wites Kwet fragen - kann mehr zu verschwundenen Kinden sagen  
+[x] Wites Kwet kommt morgen 07.Juli 1700h in den Ochsen  
+[x] Dr. Kammerstein - mögliches "Praktikum" bei ihm - Brief von Prof. Karel (Andy) ist geschrieben  
+[x] Geheimgang in Krupna  
+[x] Treffen mit Pater Woitsek am 09.Juni zum Mittagessen
+
+# Notizen
+## Anreise (Nacht vom 04. auf 05.Juni)
+
+Absprung aus dem Flugzeug
+Treffen mit Jiri und Emese
+Jiri gehört dem Widerstand an; noch keinen Kontakt zu weiteren.
+Nazis auf Motorrädern im Wald gehört, erschießen Einheimische. Eine Trägt ein Fußkettchen mit dem Namen Jaro.
+Keine Weiteren Infos
+
+
+## Neuer Tag (05. Juni)
+
+Pater vor 5 Tagen verschwunden
+Vermutlich bei den Gottesdienstvorbereitungen
+Kratzer am schließblech der Tür
+Keine offensichtliche Gewaltanwendung
+Bojan - Sohn des Wirts - behindert - hat dem Pater als Messdiener geholfen
+
+Pater Jerni aus Krupna ebenfalls vor 2 Wochen verschwunden verschwunden
+
+---
+
+05.Juli 18:00
+Junger Gestapo Inspektor Hans Schleicher kommt mit dem Zug in Hinter Trebain an
+
+David Sova - Fremdenführer - Kennt sich gut mit der Burg aus
+Susanna Sova - Tochter von David Sova - Gemüseverkäuiferin
+Wohnt im letzen Haus auf der rechten seite am Gemüsehof
+
+
+### Treffen mit Svato und Russejna
+
+Sohn Adam Verschwunden, War bei spielen mit 2 Freunden (1 Junge ein Mädchen (Anna)) alle drei verschwunden vor 9Tagen
+
+Paten Jerni aus Krupna erzählt das Kinder zur Burg verschwinden  
+Russenja hat gehört Jerni hat Kinder aus der Burg gerettet  
+Jerni hat Konvoi der Nazis überfallen  
+Nazis haben Pater Woitsek (Pater aus Karlstein) gefoltert  
+Wites Kwet kann vielleicht mehr über verschwundene Kinder sagen - Um ihn zu Findenbeim Wirt vom Ochsen (Matjes) nachfragen.  
+
+
+### Im Ochsen
+
+5 Nazis Feiern Laustark  
+    Frank und Andy unterhalten sich mit dem Wirt.  
+    Werden von SS Offizier (Oberstumrführer Schlacher aus Hannover) angequatscht.  
+    Besprechung mit dem Wirt übers "Bankett" morgen um 0900h
+
+
+### Beobachung an der Burg
+
+Wachwechsel um 2000h
+Sova Gemüse kommt von der Burg runter - wird unaufmerksam kontrolliert  
+später am Abend kommt eine Mercedes Limusiene (SS Schlachter) - wird nicht Kontrolliert
+
+---
+
+### Heimweg
+
+Auf dem Rückweg zur Wohnung werden 2 Einheimische von Schleicher in ein Kastenwagen verladen und zur Burg gefahren
+
+## Neuer Tag (06.Juni)
+
+### Treffen zum Bankett (Jonas / Frank)
+
+Gestapo (Mitarbeiter von Schleicher) bewacht Eingang zum Ochsen.
+
+Klopfen am Hintereingang - Unbekannter begrüßt uns  
+Matjes Kommt in Hinterhof - lässt uns rein  
+Weiß nichts zu den Gestapo beobachtern
+
+Wittes kommt morgen um 1700h zum Ochsen  
+Wites und Jerni haben sich gestritten - Pater Jerni sein bessenen von retten von Kinder und ist nicht mehr an der rettung Erwachsener interessiert - "Wie Besessen"
+
+
+### Uni in Prag (Oli / Andy)
+
+Untersuchungen nach "Dr. Ersnt von Kammerstein" in Prag  
+Kammersein ist eine größere Nummer in Deutschland  
+Hat für forschungesergebnisse auszeichnungen von Himmler bekommen  
+Mehrere Zeizungsausschnitte mit Himmler zusammen - offensichtlich gut befreundet  
+Schriften: Gotteslästerliches Zeug - Rassenkunde - Vererbungslehre   
+Befreundete Proffesoren von Karell sind nicht begeistert von Kammerstein.  
+Angeblich ist er dabei genetische Veränderungen an Menschen vorzunehmen um den "Superarier" zu kreieren.  
+Die letzten Publikationen kommen von der Burg Karlstein  
+Hat sich gut auf der Burg eingerichtet und arbeitet an Operation Uhrwerk  
+Himmler schätzt die arbeit von Kammerstein zur züchtung von starken Kriegern.  
+
+
+### Gemüsehändlerin (Franzi / Sigges)
+
+Neuer und teuerer LKW  
+#### Vater Zuhause - Emese unterhält sich mit Ihm:
+- Ist sehr begeistert von der Burg
+- Trinkt mit Emese und erzählt von der Burg
+
+- Im vorderen Tum (nachträglich angebaut) eine Quelle gespeist aus nahegelegenem Fluss - da der Brunnen kein Wasser hatte
+- Holt ein Lageplan aus seiner Bibliothek - gibt Ihn Emese
+- Angeblich gibt es von jeder Kirche im Umland (Krupna / Karlstein / Trebain) einen Geheimgang in je eine Burgkapelle.
+- Nach ein paar Schnaps ist er nicht mehr zu gut auf die deutschen zu sprechen.
+
+#### Jiri spieoniert in Unterlagen im Büro 
+viel verkauf an die Deutschen  
+Wird von Susanna angeheuert - heute den Tag beschäftigt
+- Arbeitsablauf Susanna:
+    - LKW beladen
+    - Susanna verkauft im Dorf | Jung gehen Dingen von den Bauernhäfen einsammeln
+    - LKW umladen für die deutschen
+    - Susanna fährt zu den Nazis
+
+#### Kirche in Krupna (Franzi / Frank)
+
+Mehr Kapelle als Kirche - Es gibt kein Pfarrhaus  
+Friedhof um Kapelle - Alles abgeschlossen  
+Kapelle sehr alt - genaues Datum unbekannt  
+Alles zugewuchert - es war schon länger keiner mehr in der Kapelle - mind. 4 Wochen  
+Emese findet spuren von Armeestiefeln zur Kapellentür  
+Pater (Frank) Knackt die Tür - Kapelle ca 15m^2  
+Frank und Emese durchsichen die Kapelle finden nichts, nichmal Wertsachen (Goldlackiertes Holz)  
+Entdecken am Friedhof Doppelte Grabsteinplatte mit Kratzspuren - Potenieller Geheimgang  
+Emese entdeckt Geheimgang - Treppe nach unten   
+Es geht ein paar stunfen nach unten - Dann Lehmboden mit Fußabdrücken (Keine Soldatenstiefel) mit kleinen abdrücken nach draußen  
+Tunnel in schlechtem Zustand - Decke Teilweise eingestürzt  
+
+---
+
+### Kirche in Trebain (Jonas)
+
+Untersuchungen nach Geheimgang ohne erfolg - sehr unwarscheinlich das hier ein Geheimgang wegführt.
+
+## Neuer Tag (07.Juni 1939)
+
+### In Pfarrhaus (Frank / Andy)
+
+Neue Kirche in Trebein - von der Alten stehen noch ein paar Grundmauern im Park
+
+### Alte Kirche Trebain (Frank / Emese)
+
+Gehen in Park, wie beschrieben sehen erstmal nix  
+Nach kurzem suchen findet man überreste von einer Alten Backsteinmauer  
+Schätzungsweise war der ganze Park die Kirche  
+Können nach kurzer Zeit Grundrisse der Kirche abstecken.  
+
+### Treffen mit Pater Woitsek (Frank / Andy)
+
+Kirche ist ein alter Backsteinbau - Größtes Gebaude in Karlstein  
+Bürgermeister und Polizisten wurden ausgetauscht  
+Neuer Bürgermeister Major Manfred Gratz  
+Woitsek wirkt unruig bei Themen zu Nazis  
+Frank verabredet sich am 09.Juni zum Mittagessen mit Pater Woitsek  
+
+Frank und Andy trinken eine Kaffee und beobachten das Pfarrhaus  
+
+Vorm Pfarrhaus fährt ein Mercedes vor - es steigt Nazioffizier Gratz aus  
+1428h: Geht in die Kirch - Woitsek kommt zu danach auch.  
+Frank geht zum Hintereingang der Kirche knackt das Schloss und tritt ein.  
+Schleicht in die Kirche - Woitsek berichtet Gratz  
+Woitsek hat eine Nachricht an Nazis geschickt.  
+Nazis sind auf der Suche nach Frank und Andy.  
+
+
+### Vorm Ochsen (Jonas)
+
+Kein Gestapo vorm Ochsen
+Gestapo auf Marktplatz und notiert Passanten
+Blättert in den Notizen als Pater und Bojan vorbeilaufen
+
+Susanna läuft mit 30-40 Jährigem Herrn mit Baseknmütze über Marktplatz läuft weiter Richtung Jiri
+
+### Am Bahnhof Karlstein (Andy)
+
+Gibt "Praktikaten"-Bewerbung am Bahnhof ab
+
+### Kirche Trebain (Frank)
+
+Bojan keine aussagen treffen.
+
+### Gemüsehänderarbeit (Sigges)
+
+Heute früher Feierabend Susanna trifft sich mit ein paar Kollegen.
+
+### im Ochsen (Frank / Andy / Oli)
+
+Sigges wartet in Seitenstrasse und passt auf.
+
+Frank bringt Bojan nach Hause
+Andy und Oli folgen unauffällig
+
+Es Klopft - Marek und Stephan kommen ins Wirttshaus  
+Es Klopft - Russenja und Bohuslav kommen ins Wirttshaus  
+Es Klopft - Susanna und Wites kommen ins Wirttshaus  
+Es Klopft - David und Ondrej kommen in Wirttshaus  
+
+Wites Kwet ist ehemaliger Lehrer  
+Jerni will wieder in die Burg um Kinder zu retten  
+Woitsek weis Vermutlich über den Tunnel bescheid  
+Nazis verschleppen Personen auf die Burg  
+Susanna sagt es ist Schlacher plus 10 SS und Gratz hat 150 Truppen  
+Alter Geheimgang in Trebain über Badehaus erreichbar.  
+Geheimgang von Karlstein startet im Stadtarchiv (ehem. Kloster)  
+
+
+Geheimgänge und Ziele  
+Krupna    - Marienkirche - Karte 28 - Da wohnt schlachter und seine Truppen  
+Treibei   - Kapelle Heiliger Nikolaus - Karte 24   
+Karlstein - Hauptturm Kreuzkapelle - Karte 38  
+
+---
+*Spielabend 27.02.2022*
+
+---
+
+Bohuslavs Falimie wird befreit und in Morschin versteckt
+
+### Aufbruch zur Burg
+
+Teamaufteilung:
+- Team Burg: Pater, Harrison, Ich und Marek
+- Beobachung Ausgang: Jiri
+- Exekutionsplatz: Emese und Karel
+- Gehöft: David Bohuslav Stepan Zuzana
+
+### Burg
+  
+Jerni kommt mit uns in die Burg  
+Kommen im 3. Strock raus.  
+Schleichen nach unten  
+2.Stock: 3 Soldaten unterhalten sich  
+1.Stock: 2 Wachen schlafen - Harrison stieht 2 Jacken und die Dienstpistole  
+Weiter nach unten  
+1.UG: Große beschlagene Tür - leise stimmen - Licht an   
+Hinter der Tür ein großer Raum mit 2 Türen, eine Angeleht, eine geschlossen  
+Angelehnt: Großer Raum mit mehreren Türen und 2 Wachen  
+Wir überwältigen die Wachen und Plünder diese  
+Finden Gefängniszellen, darin Matjes Frau und einen bekannten von Marek  
+Matjes ist bei Kammerstein, wird gefoltert.  
+Frau von Matjes, Marek und der Bewustlose gehen.  
+Schleichen weiter zum Bergfried.  
+Lila Blitzgewitter  
+
+Maschienengewehrfeuer auf Pater Jerni auf Zisternenturm  
+Klettere auf Bergfried - abgebrochen  
+Im Raum hinter dem Haupteingang sehe ich Kammerstein und Schlachter  
+Werfe Handgranate rein unf freuere auf die beiden.   
+Schlachter Tot, fehlfunktion bei Kammerstein, er entkommt.  
+
+Kammerstein rennt treppe nach oben - Wir folgen  
+1.OG:  Finden Zombie auf Tisch gefesselt  
+
+2.OG:  Pivatgemächer von Kammerstein  
+        Finden Buch "Name hier einfügen" und Brief mit aufschrift Geheim 
+ 
+3.OG:  Kommen in Kapelle an, hier ist nichts mehr Christliches vorhanden  
+        Kammerstein ist hier in der Kapelle  
+        Ich Erschieße Ihn und Packe seine Notzibuch ein  
+        Eine Wand ist nachträglich zugemauert  
+
+Frank und ich gehen ein Stockwerk nach unten und suchen nach Hammer  o.ä.  
+Ich sehe alle anderen auf der Burgmauer  
+Pater sucht Werkzeug ich baue ein Seil  
+Zombie kommt zu uns ich schieße auf ihn nicht viel passiert  
+Renne nach oben mit dem Seil  
+Der Pater und ich kletter Katzengleich aus dem Tum  
+Rennen zu den anderen, klettern in den Wald und verschwinden  
+
+### Exekutionsplatz  
+Komisches Lila Leuchten, ähnlich einer Windhose bewegt sich auf Kammersteinturm zu.  
+Begeben sich zur Kapell in Krupna zu Jiri  
+### Gehöft
+
+gehen auch zur Kapelle in Krupna
+### Ausgang
+Jiri sieht wie eine schwarze Gestallt in den Tunnel geht - Vermutlich Pater Jerni  
+Alle kommen bei Jiri an und gehe in den Tunnel als sie Pater Jerni erkennen  
+Tunnel stürzt ein alle drin außer Andy  
+kommen im Bergfried an  
+Pater Jerni beschwöhr "Die farbe aus dem All"  
+Wollen auf den Bergfried klettern  
+Nazis hören was und wollen hochkommen  
+Emeshe wirft handgranate nach unten  
+Alle anderen bewegen sich nach oben  
+Jiri wirft Seil aus dem Fenster, Frau vom Wirt weigert sich und schreit  
+Alle Klettern aus dem Fenster, Stephan bricht sich das Bein  
+Jiri Schlägt Frau vom wirt KO und klettert hinterher  
+Klettern zum Kammersteintum weiter; Laufen über die Mauer  
+Sehen uns auf dem Turm  
