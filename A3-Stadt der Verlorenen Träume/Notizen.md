@@ -12,15 +12,15 @@ Missionsziel Aufklärung:
 
 # To Dos
 
-- [x] [01 - Schreibtisch von Botho in Sphinx Buchclub](#01)
+- [x] [01 - Schreibtisch von Botho in Sphinx Buchclub](#tobias-fischer-olli-und-bruckmüller-andy-gehen-zum-sphinx-buchclub)
 
-- [x] [02 - Buchhandlung Pretzsche der auch Okkulte Dinge unter der Theke handelt](#02)
+- [x] [02 - Buchhandlung Pretzsche der auch Okkulte Dinge unter der Theke handelt](#valentin-holzer-ich-und-livia-franzi-gehen-zur-buchhandlung-pretzsche)
 
 - [ ] [03 - Wer ist LM (Liesel Maurer)?](#03)
 
-- [ ] [04 - Statue im Buchclub die ein Kompass ist.](#04)
+- [x] [04 - Statue im Buchclub die ein Kompass ist.](#im-buchclub)
 
-- [x] [05 - Den Gegenstand aus der Lagerhalle klauen](#05)
+- [x] [05 - Den Gegenstand aus der Lagerhalle klauen](#nordbahnhof-lagerhalle-03)
 
 # Notizen
 
@@ -48,7 +48,7 @@ Siedler macht die Schulblade für Bruckmüller auf, sie finden:
 - Ein Telegramm  
 - ein ausgeliehenes Buch der zivilisation von Hyperborea  
 Bruckmüller Überredet Siedler den Schreibtisch von Fuchs zu öffnen und nimmt alles raus und zeigt sie Bruckmüller  
-Darin ist enthalten - [siehe Anweisung von LM](/Anweisung%20von%20LM.md)
+Darin ist enthalten - [siehe Anweisung von LM](../A3-Stadt%20der%20Verlorenen%20Träume/Anweisung%20von%20LM.md)
 
 
 
@@ -114,7 +114,7 @@ Verabschieden uns vom Friedhof und machen uns auf den Weg zum Café.
 
 ---
 
-Franzi findet im Tagebuch von Botho das es im Buchclub eine Figur ein Kompass sein soll. [Neues ToDo](#04)
+Franzi findet im Tagebuch von Botho das es im Buchclub eine Figur ein Kompass sein soll. [Neues ToDo](#im-buchclub)
 
 ---
 
@@ -140,7 +140,7 @@ Max und Gisela auf dem Riesenrad:
 - Sie ist auf Mission einen Gegenstand zu beschaffen, dieser verlässt morgen früh um 0500 die Stadt.
 - Max erzählt Gisela von Bothos Forschung
 - Morgen um 0500 am Nordbahnhof Lagerhalle Sektion C Halle 3 ehemalige Wartungshallt, von dort fahren 2 Opel Blitz los nach München.
-    An Bord befindet sich auch Gottlob Fuchs mit Leibgarde aus 2 SS Soldaten, sowie "Spezialeinsatzkräfte" mit Okkulten fähigkeiten. [Neues ToDo](#05)
+    An Bord befindet sich auch Gottlob Fuchs mit Leibgarde aus 2 SS Soldaten, sowie "Spezialeinsatzkräfte" mit Okkulten fähigkeiten. [Neues ToDo](#nordbahnhof-lagerhalle-03)
 - Max soll sich für morgen ein Zimmer im President nehmen und dann kommt Gisela vorbei. 
 
 ## Nordbahnhof Lagerhalle 03
