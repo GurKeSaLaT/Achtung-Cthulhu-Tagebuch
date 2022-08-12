@@ -1,0 +1,24 @@
+# Ausrüstung
+
+## Rucksack
+- .22 Automatik, Schulterholster
+- Kampfmesser
+- Dienstrevolver
+- Smoking, Abendgarderobe
+- Seil
+
+## Falschirmkiste
+- Tarnnetz
+- Fernglas
+- Diktiergerät
+- Kodak Nr.1 Fotoapperat + 10 Filme
+- Entwicklerausrüstung
+- Verkleidungen: 
+    - Einfacher Arbeiter, 
+    - Pater, 
+    - Bäcker, 
+    - Industrieller.
+
+
+## Suaree
+- Schlüssel Villa Büchel
