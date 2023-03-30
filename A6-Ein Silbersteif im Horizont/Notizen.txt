@@ -342,3 +342,12 @@ Die Araber machen sich auf den weg mit einem haufen Baumstämmen und Mauleseln.
 Ein Teil geht zur Aussichtsdüne und beobachtet den Tempeleingang.
 Fast alle Fahrzeuge der deutschen stehen vor den eingang. 5 Soldaten stehen auch davor.
 Immer mal wieder kommen Arbeiter aus dem Tempel 
+
+OPERATION FEUER IM LOCH:
+1: Pater kundschaftet den Pritschenwagen mit dem sprengstoff aus und kommt zurück zum Jeep.
+2: Franzi bereitet Sprengung vom Pritschenwagen vor.
+3: Franzi und Jonas bringen sich in Possition für:
+    3.1: Franzi zum einfrieren des Rauchers auf dem Panzer
+    3.2: Jonas wirft die Granate in den Panzer
+4: Sprenung Pritschenwagen.
+5: Plan B
